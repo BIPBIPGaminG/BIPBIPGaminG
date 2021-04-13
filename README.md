@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BIPBIPGaminG
+- 👀 I’m interested in aerospatial, ingineering and astronomy
+- 🌱 I’m currently learning aeronautic
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me bipbipgmaing.off@gmail.com
